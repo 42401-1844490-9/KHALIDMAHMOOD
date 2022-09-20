@@ -1,0 +1,2 @@
+# KHALIDMAHMOOD
+AssalamOAllaikum, respected sir/mam...we sale all brands. How May we assist you Do u wanna order or join our group?????  We have items related Clothes👘                                            Garments 👗👔 Cosmetic💄 Skin care products👰🏻 Shoes🥿👞👟👠 Bags💼👜👛👝 Jewelry 💍 Accessories 🌺 Watches🕚🕕 House hold 🏠 Abaya/hijabs ♀️🧕  scarfs🧕   clocks decor⏰  pieces gifts 🎁 items  customize items  are available here at wholesale ratehttps://wa.me/message/63MJPNCUXMQ7L1
